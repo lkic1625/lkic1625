@@ -1,7 +1,3 @@
-> Was mich nicht umbringt, macht mich stärker.
-> 
-> Götzen-Dämmerung (1889) - Sprüche und Pfeile, 8
-
 ## Hi there 👋
 
 ### 🔭 Work in  
